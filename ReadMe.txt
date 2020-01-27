@@ -1,3 +1,3 @@
-Like us: facebook.com/ProDelowar
-Join us: facebook.com/groups/PBPTBD
-Web: www.trainingWithLiveProject.com
+FB Link: https://www.facebook.com/fajle.rabbie.5/
+Twitter: https://twitter.com/fajlerabbi12
+Web: https://fajlerabbi.me/
